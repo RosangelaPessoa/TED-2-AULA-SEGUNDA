@@ -1,1 +1,0 @@
-# TED-2-AULA-SEGUNDA
